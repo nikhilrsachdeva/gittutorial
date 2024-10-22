@@ -20,4 +20,4 @@ This link is valid for 2 days at this price, then udemy takes the control of the
 
 Note: The complete course recordings are by me Will be posting all the course info tomorrow. Happy Learning!! Thank you for being part of this incredible journey. Your feedback and enthusiasm mean the world to me. Let's embark on this learning adventure together!
 
-Your's Krish Naik
+Your's NIKHIL SACHDEVA
